@@ -1,0 +1,2 @@
+# JURNAL-KEBNECANAAN2
+People.
